@@ -1,3 +1,3 @@
 hai ! 
-you can call me : astro / jun-hee / bell !
+you can call me : astro / jun-hee / bell / tutorialdummy !
 
